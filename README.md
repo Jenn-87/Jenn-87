@@ -1,4 +1,4 @@
-# Hi, I am Jenny 🌜
+# Hi I am Jenny 🌜
 
 An E-commerce Operations Manager & Frontend Developer. 
 
