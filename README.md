@@ -1,7 +1,6 @@
 # Hi I am Jennifer Nakayama 🌜
 
 :house_with_garden: Born in Mainz, Germany
-
 :mortar_board: Social Science Graduate of Goethe University Frankfurt 
 
 :tokyo_tower: Start living in Tokyo in 2011 to do an internship at Goethe-Institut
